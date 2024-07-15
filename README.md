@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @gpt-owner as Reyhan Jr. as organization-owner
+- think it's? emails me at organization.owner@gmail.com 
